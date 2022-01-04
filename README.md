@@ -1,1 +1,1 @@
-https://AndreiAzaronak.github.io/rsschool-cv/cv
+https://Andrei Azaronak.github.io/rsschool-cv/cv
